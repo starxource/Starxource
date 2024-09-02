@@ -1,3 +1,1 @@
-![](422281210320518)
-
-why wobn't my dumb image loiad
+why isthis broken why does it not show up what sid i do 
