@@ -1,1 +1,3 @@
-why isthis broken why does it not show up what sid i do 
+![](422281210320518)
+how do you center images 
+i don't think im gioing to try and make my github aeshtetic i don't knwo whot to do that 
