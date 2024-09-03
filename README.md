@@ -2,5 +2,5 @@
 how do you center images 
 
 
-don't sit next to me if i don't even know u or we haven't ever talked (unless it's in my name then idc) 
+don't sit next to me if i don't  know u or we haven't ever talked (unless it's in my name then idc) 
 i am always offtab no matter what so use whispers or i won't see whgat you're saying ever
