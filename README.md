@@ -4,4 +4,4 @@ how do you center images
 
 don't sit next to me if i don't  know u or we haven't ever talked (unless it's in my name then idc) 
 
-i am almost always offtab so use whispers or i won't see whgat you're saying ever
+i am almost always offtab so use whispers or i won't see whgat you're saying ever UNLESS i am activel;y talking to ppl in public chat THAT would be a good time to not use whispers
