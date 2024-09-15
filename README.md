@@ -8,3 +8,5 @@ i am almost always offtab so use whispers or i won't see whgat you're saying eve
 
 [heres my Tumblr if u want it I post on there sometimes](https://www.tumblr.com/starxource)
 
+2 scared to make this aesthetic bc either it's gonna be ugly or i'm gonna get bullied (probably both) sorry
+
