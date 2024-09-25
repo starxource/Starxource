@@ -6,4 +6,4 @@ no c+h unless it's in my name it confuses me when random people sit next to me s
 
 2 scared to make this aesthetic bc it's gonna be ugly sorry
 
-The name "Jimmy" isn't supposed to be ironic btw I'm dead serious
+The name "Jimmy" isn't supposed to be ironic btw I'm dead serious (No funny buisness...)
