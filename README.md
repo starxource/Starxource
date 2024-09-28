@@ -3,4 +3,4 @@
 
 
 
-2 scared to make this aesthetic bc it's gonna be ugly sorry
+2 scared to make this aesthetic bc it's gonna be ugly 𝓼𝓸𝓻𝓻𝔂 ❤️
