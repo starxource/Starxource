@@ -1,4 +1,3 @@
-
-I hardly play Ponytown anymore sorry
+How do people even code this stuff man
 
 
