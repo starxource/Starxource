@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">
-(image by @velvetjump on Tumblr!)
+(image and pfp by @velvetjump on Tumblr!)
 <p
