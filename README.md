@@ -1,12 +1,15 @@
 <p align="center">
   <img width="1271" height="81" src="https://64.media.tumblr.com/be184d9d68b0b168f1735e8d2ea7b27b/a98737b53a35340e-f3/s1280x1920/e9f861162626eb38b2536ef790a70d3966531aae.pnj">
 </p>
-
-
+  
 <p align="center">
 Call me Alec (he/it pronouns!!)
 <p
-
+  
+<p align="center">
+Trans + Aroace
+<p
+  
 <p align="center">
 Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk in general chat there's like a 99% chance I won't see it (unless I have my status as online!!)
 <p
