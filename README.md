@@ -9,13 +9,9 @@ Call me Alec (he/it pronouns!!)
 <p align="center">
 Trans + Aroace
 <p
-  
-<p align="center">
-Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk in general chat there's like a 99% chance I won't see it (unless I have my status as online!!)
-<p
 
 <p align="center">
-I might be super awkward but don't take it personally PLEASUE
+Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk in general chat there's like a 99% chance I won't see it (unless I have my status as online!!)
 <p
   
 <p align="center">
