@@ -13,6 +13,10 @@ Trans + Aroace
 <p align="center">
 Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk in general chat there's like a 99% chance I won't see it (unless I have my status as online!!)
 <p
+
+<p align="center">
+I might be super awkward but don't take it personally PLEASUE
+<p
   
 <p align="center">
   <img width="340" height="410" src="https://64.media.tumblr.com/1d3affd8b1eb5164bd184ee6fc901bc4/8afcaa137920be17-fe/s400x600/291b6a3a34c5aadbe85cf2791459a6bbddfc034a.gifv">
