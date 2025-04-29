@@ -18,7 +18,9 @@ Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk
   <img width="340" height="410" src="https://64.media.tumblr.com/1d3affd8b1eb5164bd184ee6fc901bc4/8afcaa137920be17-fe/s400x600/291b6a3a34c5aadbe85cf2791459a6bbddfc034a.gifv">
 </p>
 
-
+<p align="center">
+ꔫ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ꔫ
+<p
 
 <p align="center">
   <img width="99" height="56" src="https://64.media.tumblr.com/a2c209a1dbe5d171bbd867eeda0021e9/ec4e0e3064314d61-6e/s100x200/9a76ce66f050725f47faec64c88596e5f82e0788.pnj" img width="99" height="56" src="https://64.media.tumblr.com/317627893ed631b54f9142364ec08ab5/ec4e0e3064314d61-a1/s100x200/bf859215cd49a0b4c36d7e911e7445fb1a8228a4.gifv">     <img width="99" height="56" src="https://64.media.tumblr.com/317627893ed631b54f9142364ec08ab5/ec4e0e3064314d61-a1/s100x200/bf859215cd49a0b4c36d7e911e7445fb1a8228a4.gifv">
