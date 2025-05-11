@@ -11,6 +11,10 @@ Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk
 <p
 
 <p align="center">
+C+H is only allowed if it's in my name!! It makes me uncomfortable otherwise (If we're friends u can C+H whenever ^w^)
+<p
+
+<p align="center">
   <img width="340" height="410" src="https://64.media.tumblr.com/1d3affd8b1eb5164bd184ee6fc901bc4/8afcaa137920be17-fe/s400x600/291b6a3a34c5aadbe85cf2791459a6bbddfc034a.gifv">
 </p>
 
