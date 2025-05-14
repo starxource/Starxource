@@ -11,7 +11,7 @@ Uh I'm almost always offtab so if u wanna say smt to me pls whisper! If you talk
 <p
 
 <p align="center">
-C+H is only allowed if it's in my name!! it freaks me out when i see a random pixel pony sitting next to me for no reason (If we're friends u can C+H whenever)
+C+H is only allowed if it's in my name!! it freaks me out when i see a random pixel pony sitting next to me for no reason (If we're friends u can C+H whenever idc)
 <p
 
 <p align="center">
