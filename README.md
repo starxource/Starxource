@@ -3,7 +3,7 @@
 </p>
   
 <p align="center">
-Call me Alec (he/it pronouns!!)
+Call me Alec !!!!!!!
 <p
 
 <p align="center">
@@ -32,4 +32,5 @@ NO CEE PLUS H GO AWAY unless youre my friend heart heart
 <p align="center">
   <img width="1271" height="76" src="https://64.media.tumblr.com/29d57bfe710a69ee85f15e5406f5a1ff/a98737b53a35340e-3c/s1280x1920/8339f45d34c70a19da2a9b31491dbae05d889f71.pnj">
 </p>
+YEES I AM REMAKING THIS I HATE IT I HATE IT
 
