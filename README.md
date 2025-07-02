@@ -3,7 +3,7 @@ IM REMKAING THIS ITS SUGLLY I AHTE IT IHATE IT
 
 but uhh im offtab like all the time soo w2i or i probably wont respond
 
-NOOO C+H i hate thatt shit unless we're friends then i dont really caare 💓
+No C+H unless we're friends (or it's in my name I guess)💓
 
 draw on my new strawpage :grin:
 
