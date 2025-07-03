@@ -3,7 +3,7 @@ IM REMKAING THIS ITS SUGLLY I AHTE IT IHATE IT
 
 but uhh im offtab like all the time soo w2i or i probably wont respond
 
-No C+H unless we're friends (or it's in my name I guess)💓
+No C+H unless we're friends (or if it's in my name I guess)💓
 
 draw on my new strawpage :grin:
 
