@@ -7,4 +7,4 @@ No C+H unless we're friends (or if it's in my name I guess)💓
 
 draw on my new strawpage :grin:
 
-![](https://i.pinimg.com/736x/ce/83/a0/ce83a0fab3d9034d09c83d14fc7fc356.jpg)
+![](https://i.pinimg.com/1200x/da/86/0b/da860befe472778e3922fb2f4465b06d.jpg)
