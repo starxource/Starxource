@@ -1,5 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=starxource)
-
+why does this only say 2 views what
 
 
 IM REMKAING THIS ITS SUGLLY I AHTE IT IHATE IT
