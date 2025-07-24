@@ -1,3 +1,6 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=starxource)
+
+
 
 IM REMKAING THIS ITS SUGLLY I AHTE IT IHATE IT
 
