@@ -10,4 +10,6 @@ No C+H unless we're friends (or if it's in my name I guess)💓
 
 draw on my new strawpage :grin: (if u send me a text gimmick thing i will add it late.. ia polgoize...)
 
+i should probably be taking myself more seriously on here 😬
+
 ![](https://i.pinimg.com/1200x/da/86/0b/da860befe472778e3922fb2f4465b06d.jpg)
