@@ -14,4 +14,6 @@ draw on my new strawpage :grin: (if u send me a text gimmick thing i will add it
 
 i should probably be taking myself more seriously on here 😬
 
+NOOO the name "mike" did NOT come from Michael Mell, Michael Vey, OOORR Michael Atfton i fele like i need to make this known
+
 ![](https://i.pinimg.com/1200x/da/86/0b/da860befe472778e3922fb2f4465b06d.jpg)
