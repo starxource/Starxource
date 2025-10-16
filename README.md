@@ -14,3 +14,4 @@ No C+H unless we're friends (or if it's in my name I guess)💓
 draw on my new strawpage :grin: (if u send me a text gimmick thing i will add it late.. ia polgoize...)
 
 spins![](https://files.catbox.moe/99xjj0.gif)
+THIUS KEEPS BREAKING. STARTS CRYING
