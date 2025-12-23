@@ -6,7 +6,7 @@
 i will eventually try and make this cool. not any time soon but eventually i SWEAR!
 </p>
 
-dont mind if im awkward I get scared talking to new ppl on here do nawt take it personally lol...
+dont mind if im awkward I get scared talking to new ppl on here.. do nawt take it personally lol...
 
 but uhh im offtab like all the time soo w2i or i probably wont respond
 
