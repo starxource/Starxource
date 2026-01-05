@@ -10,7 +10,7 @@ Forsaken fans dni i dont want to talk to you guys
 
 dont mind if im awkward I get scared talking to new ppl on here.. do nawt take it personally lol...
 
-but uhh im offtab like all the time soo w2i or i probably wont respond
+im offtab like all the time soo w2i or i probably wont respond
 
 No C+H unless we're friends (or if it's in my name I guess)💓
 
