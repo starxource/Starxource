@@ -14,6 +14,6 @@ but uhh im offtab like all the time soo w2i or i probably wont respond
 
 No C+H unless we're friends (or if it's in my name I guess)💓
 
-spins![](https://i.pinimg.com/originals/ee/03/7c/ee037ce64b5d313936637c0fa68b64a1.gif)
-Ik this is probably broken. just gfive it time... it will fix on its own......
+![](https://i.pinimg.com/originals/ee/03/7c/ee037ce64b5d313936637c0fa68b64a1.gif)
+
 </p>
