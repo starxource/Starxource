@@ -14,6 +14,6 @@ im offtab like all the time soo w2i or i probably wont respond
 
 No C+H unless we're friends (or if it's in my name I guess)💓
 
-![](https://i.pinimg.com/originals/ee/03/7c/ee037ce64b5d313936637c0fa68b64a1.gif)
+![](https://64.media.tumblr.com/e2ac5f47987b9cacf6c403b0273f471e/1c9a6ebf8932bdd5-66/s400x600/dcdd2ee6b609db7dab55e6cc7e68cabeaeac3abc.gifv)
 
 </p>
