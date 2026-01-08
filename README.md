@@ -1,7 +1,7 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=starxource)
 
-
+(this gif just wont center no matter what i do so im just gonna leave it how it is.igues..)
  ![](https://i.pinimg.com/originals/c2/10/76/c210768f83b1a5ac3c4ee1344c52fa4b.gif)
 
 
